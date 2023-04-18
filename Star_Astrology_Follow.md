@@ -9,3 +9,5 @@
    * om su sha hum bram 
 
 4. should write on thumb finger down number 24 and fish facing to other 4 fingers and only for 2/1/2 year write number 3 on index finger with orange colour ink - star trends 
+
+5. Given money Credit to Others But not Returning.
