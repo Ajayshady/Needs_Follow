@@ -1,4 +1,4 @@
-# what to follow about Naveen Balaji Sir:-
+# Needs to follow about Naveen Balaji Sir:-
 
 1. Gorgle Mouth Method:- tips
 
