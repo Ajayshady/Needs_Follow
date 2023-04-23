@@ -1,4 +1,4 @@
-# what to follow about Naveen Balaji Sir:-
+# Needs to follow about Naveen Balaji Sir:-
 
 1. Gorgle Mouth Method:- tips
 
@@ -40,33 +40,18 @@
 
 21. Water as Medicine - tips
 
-22. (agathi keerai/thuthi leafs/ monthly once)(keeranali-6 months once) - monthly once should boil with water and drink - videos 
-
+22. (agathi keerai/thuthi leafs/ monthly once)(keeranali-6 months once) - monthly once should boil with water and drink - videos
 
 24. Lose Motion:- - tips- should buy in the herbocare and take monthly once 
 
 25. How To Prepare Chilli/Melagai powder:- tips 
 
-
-26. Alovera beauty tips:- videos 
-
 27. Hair Growth And Grey Hair Problems:- tips 
 
 28. Get Rid Of Grey Hair and Grow Hair Full Black:- tips 
-
-29. tulsi plant should buy 
 
 30. vepaam puvu rasam for hair and grey hair - tips 
 
 31. eye excise with mud pane water 
 
 32. drinking water with mud pane 
-
-
-
-
-
-
-
-
-
