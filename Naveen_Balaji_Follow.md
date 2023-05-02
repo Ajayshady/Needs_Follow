@@ -55,3 +55,7 @@
 31. eye excise with mud pane water 
 
 32. drinking water with mud pane 
+
+33. God Murga:- Kanda Sasti is observed or start in the Tamil Month Aippasi that is mid-October to mid-November - for 7 days 
+
+
