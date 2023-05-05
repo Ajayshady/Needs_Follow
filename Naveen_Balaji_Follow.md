@@ -56,6 +56,6 @@
 
 32. drinking water with mud pane 
 
-33. God Murga:- Kanda Sasti is observed or start in the Tamil Month Aippasi that is mid-October to mid-November - for 7 days 
+33. God Murga:- videos - Kanda Sasti is observed or start in the Tamil Month Aippasi that is mid-October to mid-November - for 7 days 
 
-
+34. Chitra Poornami:- videos - after april 14th tamil new year (1st poornami is known as chitra poornami) that is in the month of may starting 1st week.
