@@ -88,10 +88,10 @@ nochi leaf sould make tea or boil with water and drink for all dieses above will
 ---
 
 * ### Lose Motion:- should buy in the herbocare and take 2 months once
+---
 
 * ### Vepam yele/Neem Leafs:- Thursday
     * should grind and apply for head and wait for half and hour and wash with shikakai powder 
-
-----
+---
 
 
