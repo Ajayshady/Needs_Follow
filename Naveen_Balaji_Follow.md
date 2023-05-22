@@ -30,7 +30,7 @@
 
 15. Rice Conji Remedies:- videos
 
-16. Donkey milk - videos
+16. Donkey milk - videos  
 
 17. Vasthu if we follow this pooja we can buy house in 6 months:- videos 
 
@@ -50,8 +50,6 @@
 
 28. Get Rid Of Grey Hair and Grow Hair Full Black:- tips 
 
-30. vepaam puvu rasam for hair and grey hair - tips 
-
 31. eye excise with mud pane water 
 
 32. drinking water with mud pane 
@@ -59,14 +57,4 @@
 33. God Murga:- videos - Kanda Sasti is observed or start in the Tamil Month Aippasi that is mid-October to mid-November - for 7 days 
 
 34. Chitra Poornami:- videos - after april 14th tamil new year (1st poornami is known as chitra poornami) that is in the month of may starting 1st week.
-
-35. karumanjal benefits:- videos 
-
-36. Valampuri Sanghu - Videos 
-
-37. All Natu/Pooja Items Available online Links:- check if we want to purchase it 
-
-
-
-
-
+35. 
