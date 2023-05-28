@@ -8,7 +8,7 @@
 
 ---
 
-* ### drushti - taking drushti follow below steps:- on  Tuesday 
+* ### drushti - taking drushti follow below steps:- on Sunday
 
 ```
 (to get rid or all karma or drushti take little salt and melagu from right hand side round for 9 times and melt in the water or put in the running water for every week we can do this if possible, on tuesday,thursday and sunday.)
