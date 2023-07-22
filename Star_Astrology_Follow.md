@@ -12,3 +12,4 @@
 
 5. Given money Credit to Others But not Returning. ----> Done 
 
+6. Kanakadhara Stotram ---> every morning or evening especially on poornami playing/reading this song will be good. - Done 
