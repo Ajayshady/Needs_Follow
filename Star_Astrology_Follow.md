@@ -1,6 +1,6 @@
 # Needs to follow about astrology madam:-
 
-1. Own House ----> On Goinging 
+1. Own House ----> Done 
 
 2. Kamakshiamma deepa pooja procedure ----> Done 
 

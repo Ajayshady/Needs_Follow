@@ -10,7 +10,7 @@
 
 5. Black Thread Procedure:- videos
 
-6. Portasi month poornami ambige (god):- - videos - it will come in october to november
+6. Portasi month poornami ambige (god):- - videos - it will come in september to october
 
 7. brahama moortham - these mudarai - videos
 
@@ -54,7 +54,7 @@
 
 32. drinking water with mud pane 
 
-33. God Murga:- videos - Kanda Sasti is observed or start in the Tamil Month Aippasi that is mid-October to mid-November - for 7 days 
+33. God Murga:- videos - Kanda Sasti is observed or start in the Tamil Month Aippasi that is mid-October to mid-November - for 7 days => that is after deepavali amavasai, next day starts kanda sasti for six days fasting and seventh day thirukalyanam
 
 34. Chitra Poornami:- videos - after april 14th tamil new year (1st poornami is known as chitra poornami) that is in the month of may starting 1st week.
 35. 
